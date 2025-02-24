@@ -1,1 +1,1 @@
-👋 A self-taught developer with a one-year IT program. I've been learning coding for 3 months and I am excited to grow my skills in development. 🌱
+👋 I’m a self-taught developer with a one-year IT program. I’m eager to grow my skills in development, with a focus on web technologies, and excited to tackle new projects and challenges as I continue my learning journey. 🌱
